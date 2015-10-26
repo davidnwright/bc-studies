@@ -40,6 +40,15 @@ There is no address of race or class here, except to aggrandize the blue-collar 
 
 
 
+----
+
+There are too many stories and names to drop in this review, suffice to say that the book follows the trajectory of Vancouver's coming of age with all its wealth, declining fortunes, vices, and sins. There are the establishment figures of the depression-era, the blue-collared workers of the 1950s, the Punk, New Wave and Rock and Roll fans, all of whom were entertained on the ballroom's sprung floor. 
+
+Given its reliance on reportage, the book could be accused of lacking a substantive or critical level that encourages distance or critical reflection upon the specific relevance of the Commodore Ballroom to some the numerous societal changes that swirled around the venue. Suffice to say, Chapman relies more on the Commodore Ballroom as metonym for cultural and social change rather than as metaphor.
+
+
+
+
  
 
  
